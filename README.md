@@ -1,7 +1,7 @@
 # Lab Shapes  
 
 ### Recipe for the cookies:  
-1	cup butter (Cubed, cold)  
+1	cup butter (Cubed, cold)* Can be warm, just refridgerate the cookies before cutting. 
 1	cup granulated white sugar  
 2	eggs  
 4	cups all-purpose flour  
